@@ -1,1 +1,1 @@
-Click te pdf file to view my certificate 
+Click the pdf file to view my certificate 
